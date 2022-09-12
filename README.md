@@ -6,6 +6,8 @@ SS Pitchers
 I have been working on a Pitchers job as a custom request for my Server, and noticed there are no jobs for pitchers so i thought i would put my pitchers job up.
 This is the first job i have posted but i am planning on doing more. Any custom job requests you would like you can make a ticket on my discord and ill see what i can do.
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+https://shadow-scripts-shop.tebex.io/category/jobs
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 Check out my Store Discord discord.me/shadowscripts
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 Check out my server discord.me/shadowcityrp
